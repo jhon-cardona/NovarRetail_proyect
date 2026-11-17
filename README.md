@@ -1,0 +1,1 @@
+# NovarRetail_proyect
